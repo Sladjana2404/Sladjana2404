@@ -1,5 +1,3 @@
-👋 @Sladjana2404
-
 📫 loncar.sladjana@gmail.com
 
 <!---
